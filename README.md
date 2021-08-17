@@ -1,4 +1,4 @@
-## Oiii! Eu sou a Karinna Lima 👋
+## Olá! Eu sou a Karinna Lima 👋
 
 ### Visão Geral do meu Github e minhas experiências
 
